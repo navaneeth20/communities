@@ -25,7 +25,6 @@ Stay tuned for more details!
 
 ** Organisers : 
 -
-Navaneethan Gopal - https://www.linkedin.com/in/navaneethangopal/
 Janarthanan S - https://www.linkedin.com/in/janarthananselvaraj/
 Saravanan Ganesan - https://www.linkedin.com/in/saravanan-ganesan-23705a47/
 -
